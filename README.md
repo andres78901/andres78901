@@ -98,7 +98,8 @@ Me enfoco en:
 ## 🤝 Conecta conmigo
 
 - 💼 LinkedIn: https://www.linkedin.com/in/andresfernandolopezrodriguez128213b5/  
-- 📧 Email: mailto:andres.lopez7890@gmail.com  
+- 📧 Email: mailto:andres.lopez7890@gmail.com
+- 🎒 Portafolio: https://viewportafolio.d3ohc3qvcobvri.amplifyapp.com/
 
 ---
 
